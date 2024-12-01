@@ -1,0 +1,1 @@
+In case you ordered https://de.aliexpress.com/item/1005006981374413.html?spm=a2g0o.order_list.order_list_main.17.185d5c5fYU1faQ&gatewayAdapt=glo2deu and want to fix it on the 22mm microscope pole, this is a base for it :)
